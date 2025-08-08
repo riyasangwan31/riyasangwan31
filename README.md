@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://sangwanriya.netlify.app/](https://sangwanriya.netlify.app/)
 
-- 📫 How to reach me **sangwanriya19722gmail.com**
+- 📫 How to reach me **sangwanriya19722@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
